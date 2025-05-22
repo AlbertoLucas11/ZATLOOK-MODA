@@ -1,1 +1,0 @@
-# ZATLOOK-MODA ljhjkjkuhiljlkjb,hjgiyghojilknkhvyjfgiuhiohkñvjgfiuhñoihlhvutkfipyoihlkhvkgjfyugiuhñulyuly
